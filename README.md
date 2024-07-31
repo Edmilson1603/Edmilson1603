@@ -9,3 +9,5 @@ Utiliso esse espaço para minha organização e compartilhamento dos meus projet
 ### Vocẽ entrar em contato comigo 🤎
 
 edmilson.sabakeviski.junior@escola.pr.gov.br
+
+![](https://media1.tenor.com/m/RHYYhjV11SwAAAAd/ronaldinho-flamengo.gif)
