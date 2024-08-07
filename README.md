@@ -11,5 +11,4 @@ Utiliso esse espaço para minha organização e compartilhamento dos meus projet
 edmilson.sabakeviski.junior@escola.pr.gov.br
 
 ![](https://media1.tenor.com/m/PD55RjTbcVYAAAAd/gabigol-flamengo.gif)
-
 ![](https://media1.tenor.com/m/TZWf-vSwmH4AAAAC/comemoracao-trocida.gif)
