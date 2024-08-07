@@ -6,7 +6,7 @@ Eu estou estudando no Alura
 Estou me desenvolvendo na linguagem JavaScript
 Utiliso esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Vocẽ entrar em contato comigo 🇧🇷
+### Você entrar em contato comigo 🇧🇷
 
 edmilson.sabakeviski.junior@escola.pr.gov.br
 
