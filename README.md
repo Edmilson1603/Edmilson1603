@@ -12,4 +12,4 @@ edmilson.sabakeviski.junior@escola.pr.gov.br
 
 ![](https://media1.tenor.com/m/PD55RjTbcVYAAAAd/gabigol-flamengo.gif)
 
-![](https://media1.tenor.com/m/pS1OKx2uhoQAAAAd/conmebol-libertadores.gif)
+![](https://media1.tenor.com/m/TZWf-vSwmH4AAAAC/comemoracao-trocida.gif)
